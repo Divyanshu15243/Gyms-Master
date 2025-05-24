@@ -43,10 +43,10 @@ plans,and analytics. Reduced operating costs, better communication, more satisfa
   - press Q to close the scanner
  
 # Send G-cash for donations
- - 09776324808
+ - 8849511377
 
 # Email:
-- robertgaton2017@gmail.com
+- buntypatel59687@gmail.com
 
 # TO CONVERT THE FILE TO EXE, CONTACT ME
 
